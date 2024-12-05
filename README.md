@@ -1,3 +1,6 @@
+🔴🟡🟢  
+**Desarrollada por:** SALA GRUPO 8
+⎯ ❐ ⤬  
 
 
 ---
