@@ -31,9 +31,7 @@
 
 ---
 
-## 🖥️ **Demo en vivo**  
 
-✨ ¡Próximamente! ✨  
 
 ---
 
